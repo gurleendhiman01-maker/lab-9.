@@ -1,1 +1,1 @@
-# lab-9.
+# lab-9. Creates platform-specific aviation marketing content while keeping campaign information accurate and compliant. The work covers LinkedIn, Instagram, advertisements and email, with emphasis on verified claims, eligibility, dates, availability, fare conditions and avoiding misleading promises.
